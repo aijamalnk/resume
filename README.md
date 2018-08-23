@@ -6,7 +6,7 @@ http://aizhamal.com | aizhamal.nk@gmail.com | +1 (646) 355 9740 | Seattle, WA
 9-2017 to 1-2018: **Financial Stability Monitoring Division, Economist**
 **National Bank of the Kyrgyz Republic**. Bishkek, Kyrgyz Republic.
 * Analyzing financial stability policy issues and macroeconomic situation; monitoring financial stability through financial risk analysis and by performing stress-tests;
-* Improving econometric models for stress-testing and better analysis;
+* Improving econometric models for stress-testing and other analysis;
 * Preparing National Bank’s periodical [*__“Financial Sector Stability Report of the Kyrgyz Republic”__*](http://www.nbkr.kg/index1.jsp?item=2305&lang=ENG) and other special reports on financial stability to the chairman of the National Bank;
 * Providing administrative assistance to the Financial Statistics and Review Department
 
