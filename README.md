@@ -20,7 +20,7 @@ http://aizhamal.com | aizhamal.nk@gmail.com | +1 (646) 355 9740 | Seattle, WA
 * Preparing lecture materials, proctoring, checking and grading exams, delivering lectures in substitute to professors, providing assistance to students. Writing monthly reports on class progress.
 
 5-2013 to 8-2013: **Assistant Project Manager. Handicap International**. Bishkek, Kyrgyz Republic.
-* Assistance to the regional manager in collecting, analyzing and interpreting data on disabled people of Kyrgyzstan; providing necessary translation during meetings (English/Russian/Kyrgyz/Uzbek).
+* Assisting to the regional manager in implementing a program to help people with disabilities or that are socially vulnerable to provide them with an inclusive lifestyle and education. Collecting, analyzing and interpreting data on people with disabilities of Kyrgyzstan.
 
 9-2012 to 5-2013: **Freelance Consultant. Sun Field Ltd**. Bishkek, Kyrgyz Republic.
 Assistance in the development and implementation of energy saving procurement system; negotiating prices; placing orders; consulting on credit lines and bank products.
